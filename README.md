@@ -2,7 +2,9 @@
 
 Positive Actions for a Better World
 
+
 - - -
+
 
 Positive action can begin at home, right now.  You only have to make the decision to act.  But where do you start?  How do we become a force for good in a complicated world?
 
@@ -14,7 +16,9 @@ Simple challenges that are easily completed by each individual, which collective
 
 And as our mass grows, so too will our gravity; pulling more and more individuals to the cause.
 
+
 - - -
+
 
 Mass and gravity are delicately interlinked.
 
@@ -28,6 +32,8 @@ If dust out in the aether has the collaborative force to give birth to stars, im
 
 Join the collective, become part of A Greater Mass.
 
+
 - - -
+
 
 www.agreatermass.org
