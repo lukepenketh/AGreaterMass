@@ -10,7 +10,7 @@ Positive action can begin at home, right now.  You only have to make the decisio
 
 A Greater Mass aims to simplify this problem.
 
-Each week an action is issued to every entity in the movement.  The actions range from giving up plastic bottles, to sending a letter to a Prisoner of Conscience.  Positive actions for a better world.
+A Greater Mass is your guidebook of individual actions to tackle the interlinked issues of climate change and human rights, all whilst maintaining your own mental health in avoiding compassion fatigue and eco anxiety.  The actions range from giving up plastic bottles, to sending a letter to a Prisoner of Conscience.  Positive actions for a better world.
 
 Simple challenges that are easily completed by each individual, which collectively aggregate into a huge mass effect.  A Greater Mass is a year-long handbook that will inflame huge social and environmental change.
 
