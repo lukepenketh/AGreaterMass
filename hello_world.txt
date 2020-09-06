@@ -1,0 +1,3 @@
+Oh Hi! I'm trying to learn to code using The Odin Project!
+Right now I'm learning how to push to github using
+git in the command line.  I feel like a hacker; it's exciting!
